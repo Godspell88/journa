@@ -4,7 +4,7 @@
 <head>
   <meta charset="utf-8" />
   <title>SLOTGACOR # Link Daftar Slot 777 Tercepat Mudah Maxwin</title>
-  <meta name="google-site-verification" content="zletBdaJ_XiGHClMDUQbUxZtiL_2A7fe2We3zLSlyPE" />
+  <meta name="google-site-verification" content="FZhpq2LthHUUhPCDnyK6zmW3ELL2oOfWgXfP-VE_FSk" />
   <meta name="description" content="SLOTGACOR ialah penyedia situs slot online terbaik yang menawarkan keuntungan dan rtp live terupdate sebagai pedoman mencapai tujuan pengalaman menarik bagi pengguna." />
   <meta name="viewport" content="width=device-width, initial-scale=1.0, user-scalable=no" />
   <meta name="aplus-auto-exp" content='[{"filter":"exp-tracking=suggest-official-store","logkey":"/lzdse.result.os_impr","props":["href"],"tag":"a"}]' />
